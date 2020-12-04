@@ -1,0 +1,2 @@
+# GoodbyeWorld
+just try
